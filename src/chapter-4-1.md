@@ -100,5 +100,3 @@ Leveraging online courses and educational resources for lifelong learning offers
 7. **Global Learning Community:** Online learning platforms provide access to a global community of learners, fostering collaboration and networking opportunities.
 
 By harnessing the power of online courses and educational resources, individuals can embark on a lifelong learning journey that is adaptable, accessible, and tailored to their interests and aspirations. The possibilities for personal and professional growth are limitless, and the lifelong learning advantage becomes a reality.
-
-*Online courses and educational resources have transformed lifelong learning, offering unprecedented accessibility and flexibility. By strategically leveraging these resources, individuals can engage in lifelong learning that is tailored to their goals, interests, and schedules. The continuous pursuit of knowledge and skills through online learning empowers individuals to stay ahead, adapt to changing environments, and unlock new opportunities in their careers and lives.*

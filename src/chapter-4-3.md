@@ -64,5 +64,3 @@ Conclusion
 ----------
 
 Mentorship and coaching relationships are vital for lifelong learning. These relationships provide individuals with guidance, support, and opportunities for personal and professional growth. By actively seeking mentors and coaches, setting clear goals, maintaining open communication, and actively participating, individuals can foster meaningful relationships that facilitate their lifelong learning journey.
-
-*Mentorship and coaching relationships are powerful vehicles for lifelong learning. By nurturing these relationships, individuals can gain valuable guidance, expand their knowledge, develop new skills, and achieve personal and professional growth.*
