@@ -1,4 +1,4 @@
-Chapter 7: Fostering Mentorship and Coaching Relationships for Lifelong Learning
+Fostering Mentorship and Coaching Relationships for Lifelong Learning
 ================================================================================
 
 Mentorship and coaching relationships are invaluable for lifelong learning. They provide individuals with guidance, support, and opportunities to enhance their knowledge, skills, and personal growth. In this chapter, we will explore the importance of mentorship and coaching in fostering lifelong learning and how to cultivate meaningful relationships in these realms.

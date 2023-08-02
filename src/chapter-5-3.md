@@ -1,4 +1,4 @@
-Chapter 6: Managing Burnout and Information Overload in the Learning Process
+Managing Burnout and Information Overload in the Learning Process
 ============================================================================
 
 In this chapter, we will explore the challenges of burnout and information overload that can arise during the lifelong learning journey. We will discuss strategies for effectively managing these issues to ensure a healthy and sustainable approach to continuous learning. By implementing these practices, you can maintain your well-being, optimize your learning experience, and reap the full benefits of lifelong learning.

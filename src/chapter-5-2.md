@@ -1,4 +1,4 @@
-Chapter 7: Navigating Financial Barriers to Education and Skill Development
+Navigating Financial Barriers to Education and Skill Development
 ===========================================================================
 
 In this chapter, we will explore the financial barriers that individuals often face when pursuing lifelong learning opportunities. We will discuss strategies and resources to help you navigate these obstacles and make education and skill development more accessible and affordable.

@@ -1,4 +1,4 @@
-Chapter 8: Addressing Time Constraints and Busy Schedules
+Addressing Time Constraints and Busy Schedules
 =========================================================
 
 In this chapter, we will explore strategies for addressing time constraints and busy schedules to make the most of lifelong learning. We understand that juggling various commitments can be challenging, but with proper planning and effective time management techniques, it is possible to integrate continuous learning into your busy life.

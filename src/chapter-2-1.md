@@ -1,4 +1,4 @@
-Chapter 5: Identifying Different Types of Lifelong Learning
+Identifying Different Types of Lifelong Learning
 ===========================================================
 
 Lifelong learning encompasses various forms of education and skill development that occur throughout a person's life. In this chapter, we will explore different types of lifelong learning and how they contribute to personal and professional growth.

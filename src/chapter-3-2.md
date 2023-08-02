@@ -1,4 +1,4 @@
-Chapter 3: Developing a Growth Mindset and Positive Attitude
+Developing a Growth Mindset and Positive Attitude
 ============================================================
 
 In this chapter, we will explore the significance of developing a growth mindset and a positive attitude in the context of lifelong learning. We will discuss the characteristics of a growth mindset, the benefits it brings, and strategies to cultivate it. Additionally, we will explore the role of a positive attitude in supporting ongoing personal and professional development.
