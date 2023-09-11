@@ -1,14 +1,14 @@
 
 Want get more our free books? click here: [https://zhengpublishing.com/subscribe/](https://zhengpublishing.com/subscribe/)
 
-- [Business Chinese 101: Navigating the Chinese Market and Conducting Successful Deals](https://zhengpublishing.com/business-chinese-101-navigating-the-chinese-market-and-conducting-successful-deals/)
-- [AI for Stress Management: Techniques and Strategies to Manage Stress with Technology](https://zhengpublishing.com/ai-for-stress-management-techniques-and-strategies-to-manage-stress-with-technology/)
-- [ChatGPT and Healthcare: AI-Powered Diagnostics and Therapy](https://zhengpublishing.com/chatgpt-and-healthcare-ai-powered-diagnostics-and-therapy/)
-- [The Art Of Resilience In The Workplace: Techniques For Overcoming Adversity And Thriving In A Changing Environment](https://zhengpublishing.com/the-art-of-resilience-in-the-workplace-techniques-for-overcoming-adversity-and-thriving-in-a-changing-environment/)
-- [The Art Of Problem-Solving: Developing Creative Solutions To Work Challenges](https://zhengpublishing.com/the-art-of-problem-solving-developing-creative-solutions-to-work-challenges/)
+- [The Perfect Job Interview: A Complete Guide to Succeeding in Any Interview](https://zhengpublishing.com/the-perfect-job-interview-a-complete-guide-to-succeeding-in-any-interview/)
+- [Artificial Intelligence and Military: The Role of Intelligent Technologies in Modern Warfare](https://zhengpublishing.com/artificial-intelligence-and-military-the-role-of-intelligent-technologies-in-modern-warfare/)
+- [Self-Improvement with AI: Techniques and Strategies to Enhance Your Well-being](https://zhengpublishing.com/self-improvement-with-ai-techniques-and-strategies-to-enhance-your-well-being/)
+- [Building Trust in Virtual Teams Through Effective Communication and Accountability](https://zhengpublishing.com/building-trust-in-virtual-teams-through-effective-communication-and-accountability/)
+- [AI for Small Business: Innovative Strategies and Techniques for Leveraging Technology](https://zhengpublishing.com/ai-for-small-business-innovative-strategies-and-techniques-for-leveraging-technology/)
+- [Managing Underperforming Teams in Legal Services: Techniques for Addressing Quality and Efficiency Issues](https://zhengpublishing.com/managing-underperforming-teams-in-legal-services-techniques-for-addressing-quality-and-efficiency-issues/)
+- [How to Effectively Lead Remote Workplace Teams for Effective Collaboration and Productivity](https://zhengpublishing.com/how-to-effectively-lead-remote-workplace-teams-for-effective-collaboration-and-productivity/)
+- [AI-Based Customer Service: Delivering Personalized Assistance and Support](https://zhengpublishing.com/ai-based-customer-service-delivering-personalized-assistance-and-support/)
+- [The Art of Feedback Coaching: Coaching and Mentoring Skills for Developing Others](https://zhengpublishing.com/the-art-of-feedback-coaching-coaching-and-mentoring-skills-for-developing-others/)
 - [Artificial Intelligence and Cybersecurity: Investigating the Role of Intelligent Technologies in Protecting Against Cyber Threats](https://zhengpublishing.com/artificial-intelligence-and-cybersecurity-investigating-the-role-of-intelligent-technologies-in-protecting-against-cyber-threats/)
-- [The Impact of AI on Business Operations: Streamlining Processes and Enhancing Efficiency](https://zhengpublishing.com/the-impact-of-ai-on-business-operations-streamlining-processes-and-enhancing-efficiency/)
-- [The Role of Feedback in Employee Goal Setting: Techniques for Providing Effective Feedback that Drives Performance](https://zhengpublishing.com/the-role-of-feedback-in-employee-goal-setting-techniques-for-providing-effective-feedback-that-drives-performance/)
-- [AI and Workplace Diversity and Inclusion: Creating a Culture of Equality and Respect](https://zhengpublishing.com/ai-and-workplace-diversity-and-inclusion-creating-a-culture-of-equality-and-respect/)
-- [The Promotion Breakthrough: Overcoming Barriers to Career Success](https://zhengpublishing.com/the-promotion-breakthrough-overcoming-barriers-to-career-success/)
 
