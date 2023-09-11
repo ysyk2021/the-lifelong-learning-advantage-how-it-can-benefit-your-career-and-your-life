@@ -1,5 +1,3 @@
-Building Curiosity and a Desire for Learning
-=======================================================
 
 In this chapter, we will explore the importance of building curiosity and a strong desire for learning in the context of lifelong learning. We will discuss why curiosity is a fundamental trait for personal and professional growth, and provide practical strategies to cultivate and nurture it. Let's dive into the exciting world of curiosity and learning:
 
